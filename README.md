@@ -1,0 +1,2 @@
+# computerbasic
+computer basic konwleage
